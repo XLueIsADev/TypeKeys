@@ -1,0 +1,1 @@
+SpeedTyping tester. no ads. no nothing. simple. free
